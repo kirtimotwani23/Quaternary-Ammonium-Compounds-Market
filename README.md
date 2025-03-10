@@ -213,7 +213,7 @@ A: Emerging trends include the development of eco-friendly QACs, increased regul
 https://www.24chemicalresearch.com/reports/106001/global-quaternary-ammonium-compounds-market-2021-282
 
 
-https://www.24chemicalresearch.com
+
 
 **CONTACT US:**
 
@@ -229,3 +229,5 @@ Established in 2016, Chemical Research specializes in providing comprehensive ch
 
 
 **Follow Us On LinkedIn:** https://www.linkedin.com/company/24chemicalresearch/
+
+**Visit our Website** https://www.24chemicalresearch.com
