@@ -11,6 +11,7 @@ The Quaternary Ammonium Compounds Market was valued at USD 3.51 billion in 2024 
 
 **Market Dynamics**
 **Drivers:**
+
 •	Rising Demand for Disinfectants: The global emphasis on hygiene, especially after the COVID-19 pandemic, has led to increased consumption of disinfectants in healthcare, residential, and commercial sectors.
 •	Expanding Textile and Personal Care Industry: The growing demand for fabric softeners, antistatic agents, and hair conditioning products has boosted the use of QACs.
 •	Industrial and Institutional Cleaning Applications: Industries such as hospitality, food processing, and pharmaceuticals require effective antimicrobial solutions, further propelling market demand.
