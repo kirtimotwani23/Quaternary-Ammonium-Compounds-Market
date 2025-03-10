@@ -26,6 +26,7 @@ Industrial and Institutional Cleaning Applications: Industries such as hospitali
 
 
 **Restraints:**
+
 Regulatory Challenges and Environmental Concerns: Strict regulations on the usage of QACs due to their potential environmental impact and toxicity levels may hinder market growth.
 
 Health Risks Associated with Prolonged Exposure: Skin irritation, respiratory issues, and potential antimicrobial resistance are concerns associated with excessive use of QAC-based products.
@@ -61,6 +62,7 @@ The demand for QACs in Brazil, Argentina, and Colombia is fueled by expanding ph
 
 **Middle East and Africa**
 Increasing investments in healthcare infrastructure and urbanization in countries such as Saudi Arabia, UAE, and South Africa are boosting the QAC market in this region.
+
 
 
 
